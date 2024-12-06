@@ -1,4 +1,4 @@
-# Hi there, I'm Husixxx 👋
+# Hi there, I'm Husic 👋
 
 Welcome to my GitHub profile! Here you can find some of my projects and contributions. 
 
